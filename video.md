@@ -1,6 +1,6 @@
 # video.md
 
-## 看完影片後預計怎麼做[影片連結](https://www.youtube.com/watch?v=DgbSc6Ys710)
+## 預計怎麼做 [影片連結](https://www.youtube.com/watch?v=DgbSc6Ys710)
 
 在影片中，作者介紹了大腦解鎖的六個方法：
 
